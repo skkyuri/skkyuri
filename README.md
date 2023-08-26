@@ -1,1 +1,1 @@
-[![](https://media.discordapp.net/attachments/757778622265294853/1132557295478382652/mr.png)](https://nyarancia.123guestbook.com/)
+[![]([https://media.discordapp.net/attachments/757778622265294853/1132557295478382652/mr.png](https://media.discordapp.net/attachments/884353356838105098/1139424100469710870/IMG_4762.jpg?width=446&height=470)https://media.discordapp.net/attachments/884353356838105098/1139424100469710870/IMG_4762.jpg?width=446&height=470)](https://nyarancia.123guestbook.com/)
