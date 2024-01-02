@@ -1,1 +1,1 @@
-![image](https://media1.tenor.com/m/wXK4OgsYWJoAAAAd/car-seat-headrest-csh.gif)
+![hi](https://media.discordapp.net/attachments/884353356838105098/1191562786120151122/car-seat-headrest-csh.gif?ex=65a5e452&is=65936f52&hm=966d53a500726477d0a06b2bc2ef89f2589acd6da8b969410d4c9ccffba87f8f&=&width=662&height=662)
