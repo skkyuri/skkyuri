@@ -1,1 +1,1 @@
-![will](https://github.com/skkyuri/skkyuri/assets/118701073/d5f823a3-e245-4344-b697-405604cf9b0d)
+![will](https://media.discordapp.net/attachments/757778622265294853/1204271943772147744/will-toledo-eats-cheeseburgers.gif?ex=65d420a5&is=65c1aba5&hm=ef7e2af9f4378ed9c7540c4eb7ac617d2609c607c3fdeeef7faf6444f42bb86b&=&width=467&height=467)
